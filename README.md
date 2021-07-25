@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @BoxEnjoyer
+- My pronouns are he/they/it and I'm a transmasc genderfluid
+- You can call me Box
+- 👀 I’m interested in making some mods for fnf because I have nothing better to do
+- 🌱 I’m currently learning fnf file structures 
+- 📫 How to reach me Box_Enjoyer#4958 on Discord!
